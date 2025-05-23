@@ -25,7 +25,7 @@ I'm a **Multimedia Engineer** and founder of [Amplifick Studios LLC](https://www
 
 ## 📫 Let's connect
 
-- 🧠 [Upwork - Amplifick Studios](https://www.upwork.com/freelancers/~010054c80b3f7c2d76?)
+- 🧠 [Upwork - Diego Grajales](https://www.upwork.com/freelancers/~010054c80b3f7c2d76?)
 - 💼 [LinkedIn](https://www.linkedin.com/in/diegograjales/)
 - ✉️ [Email](dgraja1229@gmail.com)
 
